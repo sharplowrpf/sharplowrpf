@@ -7,11 +7,11 @@
   <img width="220" height="48" alt="1000009385" src="https://github.com/user-attachments/assets/b32179eb-15f6-4cc2-980b-067dba62b156" />
 </p>
 
-
+$${\color{#FFADD7}Oscar \space \color{#FF00A1}or \space \color{#FF5BAA}{Jude}}$$
 
 <p align="center">
- Oscar or jude he/him + IM NOT A BOUNDARY BREAKER THIS IS A JOKE NAME DIE
+ he/him + I don't ship sharplow rpf
 </p>
 
-$${\color{#FFADD7}Oscar \space \color{#FF00A1}or \space \color{#FF5BAA}{Jude}}$$
+
 
