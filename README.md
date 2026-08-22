@@ -10,8 +10,9 @@
 $${\color{#FFADD7}Oscar \space \color{#FF00A1}or \space \color{#FF5BAA}{Jude}}$$
 
 <p align="center">
- he/him + I don't ship sharplow rpf
+ he/him
 </p>
 
+    !!! I don't ship sharplow RPF
 
 
