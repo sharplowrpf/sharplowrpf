@@ -1,4 +1,4 @@
-$${\color{#FFADD7}Oscar \space \color{#FF5BAA}or \space \color{#FFADD7}{Jude}}$$
+$${\color{#FFADD7}Oscar \space \color{#FF5BAA}ᵒᵘ \space \color{#FFADD7}{Jude}}$$
 
 <p align="center">
   <img width="736" height="575" alt="1000009375" src="https://github.com/user-attachments/assets/c9e2ed53-edc2-4424-ae3e-9a30b9f9a8f5" />
