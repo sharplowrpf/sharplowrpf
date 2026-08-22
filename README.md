@@ -12,5 +12,5 @@
  Oscar or jude he/him + IM NOT A BOUNDARY BREAKER THIS IS A JOKE NAME DIE
 </p>
 
-$${\color{#FFADD7}Oscar \space \color{red}or \space \color{lightgreen}{Jude}}$$
+$${\color{#FFADD7}Oscar \space \color{#FF00A1}or \space \color{#FF5BAA}{Jude}}$$
 
