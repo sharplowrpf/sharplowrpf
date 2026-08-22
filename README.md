@@ -9,9 +9,10 @@
 
 $${\color{#FFADD7}Oscar \space \color{#FF00A1}or \space \color{#FF5BAA}{Jude}}$$
 
-<p align="center">
- he/him
-</p>
+  
+ $${\color{#FFADD7}he \space \color{#FFADD7}/ \space \color{#FFADD7}{him}}$$
+ 
+ 
 
     !!! I don't ship sharplow RPF
 
