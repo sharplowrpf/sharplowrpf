@@ -1,3 +1,6 @@
+<img width="435" height="50" alt="1000009505" src="https://github.com/user-attachments/assets/cedca2dd-56b6-4637-8583-2cdde04fa1a6" />
+
+
 $${\color{#FFADD7}Oscar \space \color{#FF5BAA}ᵒᵘ \space \color{#FFADD7}{Jude}}$$
 
 <p align="center">
@@ -15,6 +18,7 @@ $${\color{#FFADD7}Oscar \space \color{#FF5BAA}ᵒᵘ \space \color{#FFADD7}{Jude
  $${\color{#FFADD7}he \space \color{#FFADD7}/ \space \color{#FFADD7}{him}}$$
  
  
+
 
     !!! I don't ship sharplow RPF
 
