@@ -1,8 +1,8 @@
 $${\color{#FFADD7}Oscar \space \color{#FF5BAA}ᵒᵘ \space \color{#FFADD7}{Jude}}$$
 
 <p align="center">
-  <img width="736" height="575" alt="1000009375" src="https://github.com/user-attachments/assets/c9e2ed53-edc2-4424-ae3e-9a30b9f9a8f5" />
-  </p>
+  <img width="560" height="428" alt="1000009460" src="https://github.com/user-attachments/assets/ac514c35-aa3a-42b8-91bd-89cb13aa1c6c" />
+</p>
   
 
 <p align="center">
